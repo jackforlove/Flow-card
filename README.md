@@ -82,7 +82,7 @@
 
 更多免费资源，互联网搞钱项目欢迎关注:
 
-优质资源电报群：https://t.me/keguqingchuang
+优质资源电报频道：https://t.me/+Bm4hdjtQx7ZmMzNl
 
 免费零撸羊毛Q群:456796559
 
